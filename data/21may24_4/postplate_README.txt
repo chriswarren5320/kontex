@@ -1,0 +1,1 @@
+washed in beak of di water and dried with air

@@ -1,0 +1,1 @@
+300um wafer directly inserted, no stands for electrodes, notching

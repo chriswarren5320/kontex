@@ -1,0 +1,1 @@
+electrodes fully submerged, contacts submerged on the bottom 

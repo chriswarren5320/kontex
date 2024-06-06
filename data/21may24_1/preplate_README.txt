@@ -1,0 +1,1 @@
+Electrodes submerged, bottom of connection submerged
